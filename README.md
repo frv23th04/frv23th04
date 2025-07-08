@@ -2,7 +2,7 @@
 
 <img src="https://i.imgur.com/hOeZOpG.jpeg" alt="thanhdieu-banner" style="border-radius: 15px; animation: glow 2s infinite alternate;">
 
-# ⚡ 𝐍𝐠𝐮𝐲𝐞̂̃𝐧 𝐇𝐢𝐞̂́𝐮 ⚡
+# ⚡ 𝑵𝒈𝒖𝒚𝒆𝒏 𝑯𝒊𝒆𝒖 ⚡
 
 > *Though I may be one among many, I am still the one and only!* 🚀
 
